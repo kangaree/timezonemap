@@ -1,0 +1,1 @@
+[Time Zone Map](https://garykangaroo.com/timezonemap)
